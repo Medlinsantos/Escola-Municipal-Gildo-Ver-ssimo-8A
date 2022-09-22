@@ -1,0 +1,4 @@
+Em 1872, a casa 7 da [[Saville Row]], [[Burlington Gardens]],em Londres, tinha como morador [[Phileas Fogg]], um dos membros mais notáveis e [[excêntricos]] do [[Reform Club]], apesar de todo seu esforço em evitar chamar a atenção sobre si. Foi nessa mesma casa que escritor[[Sheridan]], autor de romances de  de mistério, morreu em 1814.
+Phileas Fogg era um personagem enigmático, de quem nada se sabia, a não ser que era homem muito educado e um dos mais perfeitos cavalheiros da alta sociedade inglesa.
+Dizem que era parecido com o poeta romântico Byron, mas um Byronde bigodes e suíças, Byron [[impassível]], que teria vivido mil anos sem envelhecer.
+Phileas Fogg com certeza era inglês, mas provavelmente não era londrino. Nunca o tinham visto nem na bolsa de valores, nem no banco, nem em nenhum dos corredores do centro da cidade. Nem as bacias e docas de Londres 

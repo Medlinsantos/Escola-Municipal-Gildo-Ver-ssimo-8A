@@ -1,0 +1,1 @@
+O [período]  termina sempre por uma pausa bem definida, que se marca na escrita com ponto, ponto de exclamação, ponto de interrogação, reticências e, algumas vezes, com dois pontos #pontuacão #período #ponto #pontodeexclamacão #pontodeinterrogação #reticências  #doispontos.
